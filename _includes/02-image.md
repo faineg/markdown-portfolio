@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Cursed Seagull](https://www.pngkey.com/png/detail/35-358361_seagull-trying-to-swallow-starfish-png-cursed-bird.png)
